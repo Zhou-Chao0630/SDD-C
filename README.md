@@ -1,0 +1,1 @@
+Ciation：Zhou, C., Tan, X., Liu, Y., Shi, F., 2022. A cross-divide contrast index (C) for assessing controls on the main drainage divide stability of a mountain belt. Geomorphology 398, 108071. https://doi.org/10.1016/j.geomorph.2021.108071.
